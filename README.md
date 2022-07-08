@@ -4,7 +4,7 @@
 #### 交易流程：
 1.下单 2.寄出 3.报单 4.入库 5.回款
 
-[**下单教程**]([https://docs.qq.com/doc/DSG56d1pHWVB3b09p](https://docs.qq.com/doc/p/765d389cc44573a30457e06f727b149edd68fdbd?dver=3.0.0))
+[**下单教程**](https://docs.qq.com/doc/p/765d389cc44573a30457e06f727b149edd68fdbd?dver=3.0.0))
 
 #### 高价回收以下产品（拼多多百亿补贴）：
 
