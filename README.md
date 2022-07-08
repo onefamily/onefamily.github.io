@@ -8,7 +8,7 @@
 
 #### 高价回收以下产品（拼多多百亿补贴）：
 
-[**主流产品**](https://docs.qq.com/doc/DSFRBY01Lak93eFNp "下这几款产品")  _新手先下_
+[**主流产品**](https://docs.qq.com/doc/p/540777fe96987f955a63321e1ab9364c573cf6f2?dver=3.0.0 "下这几款产品")  _新手先下_
 
 [**全部产品**](https://docs.qq.com/sheet/DYkpKYWJtc21DQ1dk "代理拿方案") _代理拿方案_
 
