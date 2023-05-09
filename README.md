@@ -7,4 +7,4 @@
 [![p9d6xYQ.jpg](https://s1.ax1x.com/2023/05/07/p9d6xYQ.jpg)](https://imgse.com/i/p9d6xYQ)
 [![p9d6vFg.jpg](https://s1.ax1x.com/2023/05/07/p9d6vFg.jpg)](https://imgse.com/i/p9d6vFg)
 [![p9dchn0.md.png](https://s1.ax1x.com/2023/05/07/p9dchn0.md.png)](https://imgse.com/i/p9dchn0)
-#大家好，我是江苏王海明，我开设多个支付宝账号和银行卡户口用于非法活动，没有营业执照卖假酒，还倒卖手机，将来路不明的商品卖给客户，我错了，在这里我真诚向全网民道歉，对不起！
+#大家好，我就是视频当中骂人的王海明，我开设多个支付宝账号和银行卡户口用于非法活动，没有营业执照卖假酒，还倒卖手机，将来路不明的商品卖给客户，我错了，在这里我真诚向全网民道歉，对不起！
